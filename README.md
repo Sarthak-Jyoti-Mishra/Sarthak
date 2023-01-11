@@ -1,1 +1,1 @@
-# Sarthak-Jyoti-Mishra
+# Sarthak
